@@ -1,6 +1,3 @@
-#### Submitted
-
-
 #### Published
 
 

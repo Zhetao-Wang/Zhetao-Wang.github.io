@@ -1,7 +1,4 @@
 
-
-[![Zhetao-Wang](https://github.com/Zhetao-Wang/Zhetao-Wang.github.io)]
-
 He is currently a Undergraduate Student in the School of mathematics at Zhejiang University.
 
 #### Contact
